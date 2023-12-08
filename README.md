@@ -1,2 +1,2 @@
 # siriusdark
-Authur- Bhavya tiwari
+Author- Bhavya tiwari
